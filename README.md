@@ -34,9 +34,7 @@
 
 - homophobic .
 
-⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅
-
-- ˙ ➥ 𝖿ᥙᥒ 𝖿ᥲᥴ𝗍s ᥲᑲ𝗍. mᥱ !
+## - ˙ ➥ 𝖿ᥙᥒ 𝖿ᥲᥴ𝗍s ᥲᑲ𝗍. mᥱ !
 
 - 1 . i support yumeshippers as long as it isn't problematic .
 - 2 . i freely c+h .
