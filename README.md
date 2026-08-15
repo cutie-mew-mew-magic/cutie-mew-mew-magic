@@ -3,7 +3,9 @@
 
 ✎ 𝚙𝚛𝚎𝚏𝚎𝚛𝚛𝚎𝚍 𝚙𝚛𝚗𝚜. ╎ ➣ can use any pronouns but he/him is preferred . 𝄞
 
-⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅
+. i'm a minor (not revealing my age 4 obvious reasons) .
+
+. more about me here . ! ^_^
 
 ## ꨄ . 𝚖𝚢 𝚖𝚊𝚒𝚗 𝚏𝚊𝚗𝚍𝚘𝚖𝚜 𝚕𝚒𝚜𝚝𝚎𝚍 𝚋𝚎𝚕𝚘𝚠 . ✧˙⊹Ꮺ . 𖤓 
 
@@ -32,14 +34,24 @@
 
 - pred .
 
-- homophobic .
+- homophobe .
 
+- transphobe .
+
+- xenophobe .
+
+- lgbtq+ hater
+
+- comshipper (heavily depends) .
+
+ 
 ## - ˙ ➥ 𝖿ᥙᥒ 𝖿ᥲᥴ𝗍s ᥲᑲ𝗍. mᥱ !
 
 - 1 . i support yumeshippers as long as it isn't problematic .
-- 2 . i freely c+h .
+- 2 . i freely c+h in pony town .
 - 3 . i'm aromantic .
 - 4 . i larp so many fandoms i forgot most of them . . .
+- 5 . i like 2 play pony town often !!
 
  ≪ °❈° ≫≪ °❈° ≫≪ °❈° ≫≪ °❈° ≫
  
